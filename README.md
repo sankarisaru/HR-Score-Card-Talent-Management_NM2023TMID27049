@@ -1,0 +1,1 @@
+# HR-Score-Card-Talent-Management_NM2023TMID27049
